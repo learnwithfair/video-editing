@@ -11,7 +11,7 @@ Thanks for visiting my GitHub Account!
 
 [Click Here](https://mega.nz/folder/AWE1XYSK#hh63ludzqQJhuVdwjOOH-A)
 
-## Tutorial Document (Download)
+## Tutorial Documents (Download)
 
-[Click Here]()
+[Click Here](https://mega.nz/folder/hPNxXI6L#wlJ4aEFG9xDkvWVrDfSSjA)
 
